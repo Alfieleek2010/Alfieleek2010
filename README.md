@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Alfieleek2010
+- 👀 I’m interested in scripting
+- 📫 How to reach me: please email alfieleek2010@gmail.com
